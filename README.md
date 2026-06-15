@@ -2,12 +2,20 @@
 ㅤ<p align="center">ㅤㅤ <img width="300" height="300" alt="622_sin_titulo_20260509172945" src="Untitled189_20260615211236.png" />
 
 
-‎⠀⠀⠀ ⠀ ⠀𓈒 ݁   𓈒╺݁  ⠀she ノ it ノ pup  ྀིྀི 𓈒 ݁ 
-‎⠀ ⠀ ♡⃝ ◜ o ◝݂ ྀི১ 𓂂݁ 
+‎              ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
-i also go by my characters prns!  𓈒╺݁ ♥︎  
-‎⠀   ⠀ ⠀ c-ptsd  𓈒╺݁  autism 𓈒 
-               Nana <3
- ⠀ ⠀ c  +  h always !
+━━━━━━━━ ⊱⋆⊰ ━━━━━━━━
+
+﹒    she / it / pup   //☆
+ㅤ
+
+﹟    ily nana <3  ·  C+H always ㅤׂ
+
+
+ :   ᯓ i go by chara prns too !  .
+
+━━━━━━━━ ⊱⋆⊰ ━━━━━━━━
+
+              ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ 
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
